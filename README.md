@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CeoElmo
 - 👀 I’m interested in modding community in consoles
 - 🌱 I’m currently learning PS5 modifications
-- 
+- i also love torrents
 - 📫 How to reach me zubeer24@outlook.com
 
 <!---
